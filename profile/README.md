@@ -1,8 +1,8 @@
 # Colombian Cupid: Finding Love with Colombian Singles
 Join Colombian Cupid to connect with Colombian singles for online dating, love, and serious relationships. Meet passionate Colombian men and women seeking long-term connections. Explore profiles, chat, and find your perfect match on Colombian Cupid. Start your journey today to meet Colombian singles and embrace love across borders!
 
-# <a href="https://boostimmunity.shop/">Click Here: Meet Colombian Singles</a>
-# <a href="https://boostimmunity.shop/">Click Here: View Colombian Singles now</a>
+# <a href="https://digitalvidyapeeth.in/region/index.html">Click Here: Meet Colombian Singles</a>
+# <a href="https://digitalvidyapeeth.in/region/index.html">Click Here: View Colombian Singles now</a>
 
 Are you looking for love and romance with someone from a vibrant and passionate culture? Look no further than Colombian Cupid, the leading online dating platform dedicated to connecting singles with Colombian men and women. With Colombian Cupid, you can explore meaningful relationships with individuals from Colombia, whether you're interested in casual dating, a serious relationship, or even marriage.
 
